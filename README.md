@@ -4,5 +4,5 @@ My hobbies:
 - Playing the piano
 - Swimming
 My education:
-1. Red Swastka School
+1. Red Swastika School
 2. Dunman High School
